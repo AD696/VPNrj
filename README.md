@@ -65,10 +65,4 @@
 
 [好用的VPS推荐,高速稳定](https://pacificrack.com/portal/aff.php?aff=4060)
 
-[NameSilo域名注册主页](https://www.namesilo.com/ ?rid=4d24442dt)
-
-[NameSilo域名搜索](https://www.namesilo.com/domain/search-domains ?rid=4d24442dt)
-
-[NameSilo定价页面](https://www.namesilo.com/pricing ?rid=4d24442dt)
-
 [有问题可以联系我的TG](https://t.me/AD69969)
