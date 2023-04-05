@@ -59,7 +59,7 @@
 
 [好用的VPN软件快连下载地址](https://bitbucket.org/letsgogo/letsgogo_16/src/master/)
 
-[备用链接下载](https://github.com/LetsGo666/LetsGo_3)
+[快连备用链接下载](https://github.com/LetsGo666/LetsGo_3)
 
 [安装后打开填写我的ID：13600818 你能多得3天会员！](https://bitbucket.org/letsgogo/letsgogo_16/src/master/)
 
