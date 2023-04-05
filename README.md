@@ -66,3 +66,5 @@
 [好用的VPS推荐,高速稳定](https://pacificrack.com/portal/aff.php?aff=4060)
 
 [有问题可以联系我的TG](https://t.me/AD69969)
+
+如果对您有帮助请给我点个starred✨
