@@ -59,13 +59,13 @@
 
 [好用的VPN软件快连下载地址](https://bitbucket.org/letsgogo/letsgogo_16/src/master/)
 
-[备用链接下载]（https://github.com/LetsGo666/LetsGo_3)
+[备用链接下载](https://github.com/LetsGo666/LetsGo_3)
 
 [安装后打开填写我的ID：13600818 你能多得3天会员！](https://bitbucket.org/letsgogo/letsgogo_16/src/master/)
 
 [好用的VPS推荐,高速稳定](https://pacificrack.com/portal/aff.php?aff=4060)
 
-[NameSilo域名注册主页]（https://www.namesilo.com/ ?rid=4d24442dt）
+[NameSilo域名注册主页](https://www.namesilo.com/ ?rid=4d24442dt)
 
 [NameSilo域名搜索](https://www.namesilo.com/domain/search-domains ?rid=4d24442dt)
 
