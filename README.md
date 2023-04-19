@@ -5,7 +5,7 @@
 
 主流的科学上网软件是V2ray、Clash、Shadowrocket
 
-科学上网软件使用教程：[点击打开](docs/CONTRIBUTING.md)>>
+科学上网软件使用教程：[点击打开](https://sk.adbobo.one)>>
 
 
 ## **Windows下载**
@@ -41,7 +41,7 @@
 
 请在AppStore下载 Shadowrocket（小火箭），用美区ID登录下载。
 
-[需要ID请前往鹿行商集](https://www.adbobo.one)
+[需要ID请前往天际发卡](https://www.adbobo.one)
 
 # **机场节点推荐(精选)**
 
